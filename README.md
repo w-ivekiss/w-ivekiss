@@ -1,4 +1,4 @@
-![image](https://www.pinterest.com/pin/461056080623414084/)
+![image]( https://www.pinterest.com/pin/461056080623414084/ )
 
 # ꉂ`🍥 𝐈𝐧𝐟𝐨𝐫𝐦𝐚𝐭𝐢𝐨𝐧 . ᐟᐟ☆~  
 
